@@ -1,0 +1,2 @@
+# kek.net
+landing page
